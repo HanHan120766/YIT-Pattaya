@@ -12,9 +12,8 @@
 
 ###### D套餐是深潜
 
-![image-20190425132804412](/Users/qianyunfeng/Library/Application Support/typora-user-images/image-20190425132804412.png)
+![image-20190425132804412](https://i.loli.net/2019/05/08/5cd268ae24cfd.png)
 
-![31556173617_.pic](/Users/qianyunfeng/Library/Containers/com.tencent.xinWeChat/Data/Library/Application Support/com.tencent.xinWeChat/2.0b4.0.9/7432c382cf4b954cb0618b986e7cda59/Message/MessageTemp/9e20f478899dc29eb19741386f9343c8/Image/31556173617_.pic.jpg)
 
 > 下午回来冲淡水，然后芭提雅步行街吃小吃，逛酒吧，随意玩
 
